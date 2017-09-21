@@ -10,3 +10,7 @@ Mere anarchy is loosed upon the world,
 The blood-dimmed tide is loosed, and everywhere
 
 The ceremony of innocence is drowned;
+
+ruining Yeats' words for open science
+
+romantic Ireland's dead and gone - oops, wrong poem
